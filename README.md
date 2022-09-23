@@ -1,3 +1,0 @@
-# npgtav.skulll.xyz
-
-### WIP
